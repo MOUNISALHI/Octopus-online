@@ -24,6 +24,10 @@ EXPLORE OUR SERVICES 🎨
 🔴 Website & App Programming: Professional user experiences based on marketing principles.
 
 🔴 Media Production: High-quality media production that delivers your message.
+                                                                            
+                                                                            
+                                                              ![Octopus online  copy copy](https://github.com/user-attachments/assets/e644f923-c279-47e6-afc8-815f1150202d)
+
 
 🔴 Photography Services: Product photography and video shooting services.
 
