@@ -25,8 +25,9 @@ EXPLORE OUR SERVICES 🎨
 
 🔴 Media Production: High-quality media production that delivers your message.
                                                                             
-                                                                            
-                                                              ![Octopus online  copy copy](https://github.com/user-attachments/assets/e644f923-c279-47e6-afc8-815f1150202d)
+
+                            ![Octopus online  copy copy](https://github.com/user-attachments/assets/ac57650a-817e-49ea-ab02-8def42308519)
+
 
 
 🔴 Photography Services: Product photography and video shooting services.
